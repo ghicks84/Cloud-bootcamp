@@ -1,5 +1,4 @@
 # Cloud-bootcamp
 
-Gerald is making progresss. 
+i will be great , dont give up .. 
 
-hold up Gerald !!! i got air jordans . hold up mayne...
